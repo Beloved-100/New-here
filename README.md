@@ -9,7 +9,7 @@ Internship and training
 Job application and monitization
 
 
-
+Still a learner 
 
 
 
